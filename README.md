@@ -1,0 +1,2 @@
+# DefasyaZulsyifahKanna
+Pertemuan6_A2_PProkom_DefasyaZulsyifahKanna
